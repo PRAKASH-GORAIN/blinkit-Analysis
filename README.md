@@ -35,4 +35,12 @@ This project helped me gain a deeper understanding of sales patterns and outlet 
 
 
 
+![Screenshot 2024-09-23 083545](https://github.com/user-attachments/assets/c6cad87b-4a23-4242-8819-7a84aee75be6)
+
+![Screenshot 2024-09-23 084340](https://github.com/user-attachments/assets/a8e1ed21-fe43-40a3-ae5c-4a0a60fd90cf)
+
+
+
+
+
 
